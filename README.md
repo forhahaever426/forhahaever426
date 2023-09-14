@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi 我是Rikcy 哲瑋 👋
 
 <!--
 **forhahaever426/forhahaever426** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
